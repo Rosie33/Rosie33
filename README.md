@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Rosie33
+- 👀 I’m interested in Pretty much everything, reading, writing, learning, creating, keeping active, music. In ways to make things better and easier for people,caring for the earth....
+- 🌱 I’m currently learning all i can and also studying to finish level 5 in sports fitness and recreation and to build me an online platform 💞️ I’m looking to collaborate on building an online platform to offer goods services and general comradmanship and wellbeing....
+- 📫 How to reach me , you can reach me at 11elevenconnect@gmail.com, PH: +64 0273543697...
+
+<!---
+Rosie33/Rosie33 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
